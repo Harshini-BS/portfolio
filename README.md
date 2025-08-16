@@ -1,2 +1,3 @@
 
-https://manus.im/share/ijQ7ECVT727GCsbcBzkbUu?replay=1
+
+https://8080-irzwkxtuwcjz4qx4neoox-f9690d24.manusvm.computer/
